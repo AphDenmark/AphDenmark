@@ -1,6 +1,6 @@
-# ✧ Hej! Yes, a Denmark GitHub I mainly use.
+# ✧ Hej! Yes, a Denmark GitHub I mainly use!
 
-## ✧ Jex, Rationex, Aki, I do not mind nickname as long as appropriate.
+## ✧ Jex, Rationex, Aki, I do not mind nickname as long as it is appropriate.
 
  ✧ This is PonyTown purposes!
 
