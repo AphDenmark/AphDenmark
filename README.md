@@ -4,7 +4,7 @@
 
  ✧ This is PonyTown purposes!
 
- ✧ Under 14 and aduls ice thin, please.
+ ✧ Under 14 and adults ice thin, please.
  
     ✧ My Wife frfr vv (cred to the owner) 
     
